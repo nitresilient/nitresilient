@@ -104,7 +104,7 @@
 
 🍜 Favourite Anime: **Naruto**
 
-🤍 Favourite Character: **Hinata Hyuga**
+🤍 Favourite Character: **Naruto Uzumaki**
 
 > *"Believe in yourself and never give up."* 🍃
 
